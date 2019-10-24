@@ -7,4 +7,7 @@ Sua lan 2
 > Calendar
 > Computer
 > Calculator
+> Them mot dong sau calculator
+> Them mot dong nua
+> More and more
 > Mirror
